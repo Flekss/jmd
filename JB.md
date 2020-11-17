@@ -36,5 +36,5 @@
 
 Неужели наше государство подумало о людях, в кой то веке! Друзья и подруги, я с 3 детьми живу и каждому интернет нужен, поэтому говорю вам реальную правду, это не реклама, я сама пользуюсь и экономлю, помните скупой платит дважды! Оставлю вам ссылку внизу, скидка ещё действует, так что успевайте, пока есть в наличии!
 
-<a href="https://cutt.us/Vz1kg"><img src="https://sun9-16.userapi.com/ovtLiQzYJUdrL2sYqTvRVV1x5TOqKT7Ch9ggZQ/0mMGCkz5xIA.jpg" alt="Скидка для пользователей Яндекс Дзен" width="602" height="80">
+<a href="https://utka.su/KwtW4"><img src="https://sun9-16.userapi.com/ovtLiQzYJUdrL2sYqTvRVV1x5TOqKT7Ch9ggZQ/0mMGCkz5xIA.jpg" alt="Скидка для пользователей Яндекс Дзен" width="602" height="80">
 
